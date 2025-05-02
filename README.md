@@ -17,5 +17,5 @@ Twitter/X: https://twitter.com/TheRealTralty
 Instagram: https://www.instagram.com/therealtralty/
 
 
-[<img src="https://www.bisecthosting.com/images/CF/Adventure_of_Tech/BH_AdventureofTech_Promo.webp">](https://bisecthosting.com/Tralty)
-Host your Adventure of Tech server with BisectHosting and enjoy an exciting gaming experience with your loved ones. With over a decade of experience and a presence in 20 locations worldwide, BisectHosting is the perfect choice for seamless and enjoyable gameplay. Get the latest updates on your server with their automated modpack installation and update system, and rely on their 24/7 support team for any game-related queries. Make sure to use code 'Tralty' for a 25% discount on your first month as a new customer!
+[<img src="https://www.bisecthosting.com/images/CF/Adventure_of_Tech/BH_AdventureofTech_Promo.webp">](https://bisecthosting.com/gio)
+Host your Adventure of Tech server with BisectHosting and enjoy an exciting gaming experience with your loved ones. With over a decade of experience and a presence in 20 locations worldwide, BisectHosting is the perfect choice for seamless and enjoyable gameplay. Get the latest updates on your server with their automated modpack installation and update system, and rely on their 24/7 support team for any game-related queries. Make sure to use code 'gio' for a 25% discount on your first month as a new customer!
